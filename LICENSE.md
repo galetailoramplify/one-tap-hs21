@@ -1,4 +1,4 @@
-#  
+#  math for brainrots Script premium offers the most advanced math for brainrots Script, with silent aim and no clip. Perfect for dominating any match.
 
 
 
